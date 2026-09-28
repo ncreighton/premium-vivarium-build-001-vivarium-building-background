@@ -1,0 +1,2 @@
+# premium-vivarium-build-001-vivarium-building-background
+Tired of scattered notes, forgotten foam pieces, and never being able to find that one carving reference mid-build? Your vivarium projects deserve a single hub.  The Vivarium Building &amp; Background Foam Craft Hub centralizes every stage of your vivarium build—from material shopping lists to step-by-step carving notes—so you never lose track. Replace
